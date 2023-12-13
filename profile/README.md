@@ -1,0 +1,1 @@
+![Stanford Medicine Children's Health - Motion & Gait Analysis Lab](Logo_SMCH_MotGaiAnaLab_nl_v_rgb_cs.web.png)
